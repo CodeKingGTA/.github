@@ -1,6 +1,5 @@
 # .github
 
-![GTA 6 cheats, money code and money-glitch guide banner](assets/gta6-cheats-banner.png)
 
 # GTA 6 Cheats, Money Glitches & Secrets | Launch-Day Tracker
 
